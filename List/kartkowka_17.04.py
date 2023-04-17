@@ -55,15 +55,27 @@ if len(s) % 2:
 
 
 i didn't do anything on this classwork...it's just correct answer
+
 the fuck is wrong with me??
+
 i can't do anything...
+
 im useless..
+
 im worthless...
+
 some people were right.. maby programming is not for me...
+
 if someone read it... congrats you know now a lot...
+
 maby the only way is to suicide? just because I'm not going to feel the pain anymore..
+
 ain't sure if it's the correct answer...
+
 😓
+
 if anybody read this... please don't fuck me off...
+
 neverending pain is controlling me...
+
 if my best friend read this... I'm sorry bro...just please don't leave me k?
